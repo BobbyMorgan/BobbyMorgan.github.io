@@ -1,2 +1,2 @@
 # BobbyMorgan.github.io
-野兽
+野兽之家
